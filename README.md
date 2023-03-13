@@ -1,1 +1,1 @@
-https://kirigayakazuta.github.io/rsschool-cv/
+https://kirigayakazuta.github.io/rsschool-cv/cv
